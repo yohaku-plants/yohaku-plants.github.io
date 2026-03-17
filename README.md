@@ -1,1 +1,0 @@
-# yohaku-plants.github.io
